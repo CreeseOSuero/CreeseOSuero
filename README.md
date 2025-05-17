@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @CreeseOSuero a.k.a Creese Andrenee O. Suero
-- 👀 I’m interested in pokemon, romance books, and journalinhg!
+- 👀 I’m interested in pokemon, romance books, and journaling!
 - 🌱 I’m currently learning different subjects in PISAY like mathermatics, computer science, etc.
 - 💞️ I’m looking to collaborate on nothing /joke- it's required to collaborate in group projects
 - 📫 How to reach me : Email - creeseandrenee.suero@smc.pshs.edu.ph Messenger/Facebook - MissyOS 
